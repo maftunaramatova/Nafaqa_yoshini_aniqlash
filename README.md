@@ -1,0 +1,1 @@
+# Nafaqa_yoshini_aniqlash
